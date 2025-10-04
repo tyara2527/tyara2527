@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi Amma >.<
 
 <!--
 **tyara2527/tyara2527** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
